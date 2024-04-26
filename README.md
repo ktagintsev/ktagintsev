@@ -1,18 +1,13 @@
-### Hi there 👋
+### ✨ Software Development ✨
 
-[My LinkedIn](https://www.linkedin.com/in/webdivision-pro/)
+Helping you make great websites and mobile apps
 
-<!--
-**ktagintsev/ktagintsev** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+#### **Tired of paying for work that doesn't get results?** 🤔
 
-Here are some ideas to get you started:
+I understand your concerns and promise to provide result-driven services to your needs; otherwise, I won't take on a task. I believe that your success directly contributes to mine.
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+🌐 [yoosolutions.com](https://yoosolutions.com)
+
+✉️ team@yoosolutions.com
+
+📱 +61 411 040 019 (Telegram/WhatsApp)
