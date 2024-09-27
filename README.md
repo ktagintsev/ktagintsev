@@ -6,8 +6,8 @@ Helping you make great websites and mobile apps
 
 I understand your concerns and promise to provide result-driven services to your needs; otherwise, I won't take on a task. I believe that your success directly contributes to mine. ❤️
 
-🌐 [webdivision.pro](https://webdivision.pro) &nbsp;&nbsp;&nbsp; 🌐 [yoosolutions.com](https://yoosolutions.com)
+🌐 [webdivision.pro](https://webdivision.pro)
 
-✉️ team@yoosolutions.com
+✉️ info@webdivision.pro
 
 📞 +61 411 040 019 (Telegram/WhatsApp)
