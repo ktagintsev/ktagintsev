@@ -1,6 +1,6 @@
 ### ✨ Software Development ✨
 
-Helping you make great websites and mobile apps
+Helping you make great websites and mobile apps. Order Now 10% off.
 
 #### **Tired of paying for work that doesn't get results?** 🤔
 
